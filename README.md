@@ -1,2 +1,3 @@
 Os dados, que são do Centro de Monitoramento do Tempo e do Clima de Mato Grosso do Sul (Cemtec), e do Corpo de Bombeiros Militar do Estado do Mato Grosso do Sul, foram divulgados nesta segunda-feira (17). De acordo com o levantamento, a área atingida aumentou 19 vezes em 2024 se comparada ao mesmo período de 2023, quando foram queimados 17.050 hectares.
 
+De acordo com o vídeo, Tiago corre em direção ao idoso, passa por cima do canteiro e golpeia a vítima. Ele afirmou à polícia, durante a reconstituição do crime, que acertou o idoso abaixo do quadril. A versão, segundo a delegada Liliane Doretto, não é compatível com o laudo preliminar da causa da morte.
